@@ -1,0 +1,1 @@
+# ENTROPY-VISUAL[README-TEMPLATE.docx](https://github.com/pvsundar/ENTROPY-VISUAL/files/11301057/README-TEMPLATE.docx)
